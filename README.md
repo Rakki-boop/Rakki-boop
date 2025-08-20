@@ -2,14 +2,18 @@
 
 ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/05561e7b2979a3a530d253a39e0d9a32c8663fe4/6292878db61d36c92e7f9bc6262e039b.jpg)
 
+													────────────────────────────────────
 											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
-				      
 										─── ･ Usually chilling near the rock at hoyoverse area. ･ ───
-
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
+	  												  ───────────────────────────────
+	                       ─── ･ I have a very specific sense of humor, don't take everything I say seriously. ･ ───
+		  ─── ･ but if I will make you uncomfortable with my behavior, please tell me so I won't do it again in the future!! ･ ───
+ 					   ─── ･ ^ though if you are overly sensitive just dont interact with me (just let me joke, jeez) ^ ･ ───
+ 													  ───────────────────────────────
 					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
-
-									 		  ╚⏤⏤⏤╗ ･ Wanderer shippers heavy dni ･ ╔⏤⏤⏤╝
+								   	   		 ╚⏤⏤⏤╗ ･ Wanderer shippers heavy dni ･ ╔⏤⏤⏤╝
+												     ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [carrd](https://rakkiicard.carrd.co) ･ [atabook](https://rakki.atabook.org/?page=1)❫ ･━━ ❜ 
 	
 			 
