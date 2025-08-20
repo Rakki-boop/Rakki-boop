@@ -7,6 +7,7 @@
 										─── ･ Usually chilling near the rock at hoyoverse area. ･ ───
 
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
+					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
 
 													─── ･ Wanderer shippers heavy dni ･ ───
 			 
