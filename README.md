@@ -10,7 +10,7 @@
 	  												  ───────────────────────────────
 				 
 	                       ─── ･ I have a very specific sense of humor, don't take everything I say seriously. ･ ───
-		 ─── ･ but if I will make you uncomfortable with my behavior, please tell me so I won't do it again in the future!! ･ ───
+	 ─── ･ but if I will make you uncomfortable with my behavior, please tell me so I won't do it again in the future!! ･ ───
  					   ─── ･ ^ though if you are overly sensitive just dont interact with me (just let me joke, jeez) ^ ･ ───
 		 
  													  ───────────────────────────────
