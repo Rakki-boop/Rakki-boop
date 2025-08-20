@@ -6,4 +6,6 @@
 				      
 										─── ･ Usually chilling near the rock at hoyoverse area. ･ ───
 
-							─── ･ Not the most talkactive person, but I appreciate any kind of interaction! ♡ ･ ───
+							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
+
+													─── ･ Wanderer shippers heavy dni ･ ───
