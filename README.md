@@ -4,10 +4,15 @@
 
 													────────────────────────────────────
 											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
+		   
 										─── ･ Usually chilling near the rock at hoyoverse area. ･ ───
+		  
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
+
 	                       ─── ･ I have a very specific sense of humor, don't take everything I say seriously. ･ ─── 
+						
 					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
+		  
 								   	   		╚⏤⏤⏤╗   ･ Wanderer shippers heavy dni ･    ╔⏤⏤⏤╝
 												       ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [carrd](https://rakkiicard.carrd.co) ･ [atabook](https://rakki.atabook.org/?page=1)❫ ･━━ ❜ 
