@@ -9,3 +9,6 @@
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
 
 													─── ･ Wanderer shippers heavy dni ･ ───
+			 
+			 
+   ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/b4a1f74dfd9657815a8f0c69189d15d1ab8707ef/Screenshot_20250820_202029_Instagram.jpg)
