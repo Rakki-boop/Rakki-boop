@@ -9,8 +9,9 @@
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
 					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
 
-													─── ･ Wanderer shippers heavy dni ･ ───
-			 
+													╚⏤⏤⏤╗ ･ Wanderer shippers heavy dni ･ ╔⏤⏤⏤╝
+I CANT MOVE IT TO THE MIDDLE IM GONNA TWEAK ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [carrd](https://rakkiicard.carrd.co)❫ ･━━ ❜ 
+	
 			 
    ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/b4a1f74dfd9657815a8f0c69189d15d1ab8707ef/Screenshot_20250820_202029_Instagram.jpg)
 
