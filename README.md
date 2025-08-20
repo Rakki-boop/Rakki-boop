@@ -15,5 +15,8 @@
    ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/b4a1f74dfd9657815a8f0c69189d15d1ab8707ef/Screenshot_20250820_202029_Instagram.jpg)
 
 				for u cuz you spent your time to look at my github (check other links too plz, espeically mi insta with arts)
-![image alt]()
-![image alt]()
+![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/23d8991ef9c59469597fbc01f742e76132510f4d/eefbef3b5c4823a26374a64a91c1df25.jpg)
+
+																I love say gex
+
+![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/23d8991ef9c59469597fbc01f742e76132510f4d/5ef0bafa1ee15c867ee3188d3afba4a0.jpg)
