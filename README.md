@@ -13,7 +13,7 @@
 						
 					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
 		  
-								   	   		╚⏤⏤⏤╗   ･ Wanderer shippers heavy dni ･    ╔⏤⏤⏤╝
+								   	   		╚⏤⏤⏤╗   ･ Kazuscara shippers heavy dni ･    ╔⏤⏤⏤╝
 												       ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [carrd](https://rakkiicard.carrd.co) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakki-boops.straw.page) ❫･━━ ❜ 
 							
