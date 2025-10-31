@@ -1,6 +1,6 @@
 			˚ ༘♡ ·˚꒰ This world doesn't like those who are different. Don't let anyone tell you who you should be. ꒱ ₊˚ˑ༄
 
-![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/fe02f4229bf19a940e3610730322f3f91a5c0ba9/2d14b8b772848c40c5e770dc66049d57.jpg)
+![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/ee6ad7fde698bc6c5576b7d3558429d84c0d18cb/6342e8141d80a54a8cf14f06c1484740.jpg)
 
 													────────────────────────────────────
 											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
