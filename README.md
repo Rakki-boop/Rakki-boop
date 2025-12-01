@@ -15,7 +15,7 @@
 		  
 								   	   		╚⏤⏤⏤╗   ･ Kazuscara shippers heavy dni ･    ╔⏤⏤⏤╝
 												       ───────────────────────────────
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ carrd ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakki-boops.straw.page) ❫･━━ ❜ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [tree](https://colormytree.me/2025/01KBD159AB052A7NRZ5SB62Z0Z) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakki-boops.straw.page) ❫･━━ ❜ 
 							
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=orange&label=maple+leaves+<3)
 	
