@@ -5,7 +5,7 @@
 													────────────────────────────────────
 											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
 		   
-										─── ･ Usually chilling near the rock at hoyoverse area. ･ ───
+										─── ･ Always sitting near the rock at hoyoverse area. ･ ───
 		  
 							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
 
