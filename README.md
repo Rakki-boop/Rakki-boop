@@ -1,4 +1,4 @@
-			˚ ༘♡ ·˚꒰ This world doesn't like those who are different. Don't let anyone tell you who you should be. ꒱ ₊˚ˑ༄
+						˚ ༘♡ ·˚꒰ Butterflies can't see their own wings, but everyone else admires their beauty. ꒱ ₊˚ˑ༄
 
 ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/7fe4903a4cf8d1bf9b044a37afb09f522d2a9a86/6292878db61d36c92e7f9bc6262e039b.jpg)
 
