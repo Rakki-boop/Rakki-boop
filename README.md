@@ -1,6 +1,6 @@
 						˚ ༘♡ ·˚꒰ Butterflies can't see their own wings, but everyone else admires their beauty. ꒱ ₊˚ˑ༄
 
-![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/7fe4903a4cf8d1bf9b044a37afb09f522d2a9a86/6292878db61d36c92e7f9bc6262e039b.jpg)
+![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/8db97e43be403e2f2b4d83e12d64e52867e2d2ba/178508e08daa3774328748452c40fa84.jpg)
 
 													────────────────────────────────────
 											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
@@ -17,7 +17,7 @@
 												       ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ❫･━━ ❜ 
 							
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=orange&label=maple+leaves+<3)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=green&label=maple+leaves+<3)
 	
 			 
    ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/b4a1f74dfd9657815a8f0c69189d15d1ab8707ef/Screenshot_20250820_202029_Instagram.jpg)
