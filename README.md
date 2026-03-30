@@ -2,16 +2,7 @@
 
 ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/8db97e43be403e2f2b4d83e12d64e52867e2d2ba/178508e08daa3774328748452c40fa84.jpg)
 
-													────────────────────────────────────
-											╔⏤⏤⏤╝ ♡ Hi, call me Rakki! Any pronouns ♡ ╚⏤⏤⏤╗
-		   
-										─── ･ Always sitting near the rock at hoyoverse area. ･ ───
-		  
-							─── ･ Not the most talkactive and friendly person, but I'm trying my best ♡ ･ ───
-
-	                       ─── ･ I have a very specific sense of humor, don't take everything I say seriously. ･ ─── 
-		  
-								   	   		╚⏤⏤⏤╗   ･ Kazuscara shippers heavy dni ･    ╔⏤⏤⏤╝
+															NEW README IN MAKING
 												       ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ❫･━━ ❜ 
 							
