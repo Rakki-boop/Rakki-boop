@@ -7,11 +7,9 @@
 		   
 										─── ･ Always sitting near the rock at hoyoverse area. ･ ───
 		  
-							─── ･ Not the most talkactive person, but I'm open to new friends and any ints!! ♡ ･ ───
+							─── ･ Not the most talkactive and friendly person, but I'm trying my best ♡ ･ ───
 
 	                       ─── ･ I have a very specific sense of humor, don't take everything I say seriously. ･ ─── 
-						
-					     ─── ･ Usually offtab or afk doing other things, whisper to wake me up, or just come cuddle ･ ───
 		  
 								   	   		╚⏤⏤⏤╗   ･ Kazuscara shippers heavy dni ･    ╔⏤⏤⏤╝
 												       ───────────────────────────────
