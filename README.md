@@ -9,7 +9,7 @@
 
 		 ⤷ ゛ ˎˊ˗ Not really into making new friends, but I'm nice!! Cuddling with strangers is not my preference
 
-										◟♯ . / ! I will be mean to you if you're trolling me or if I see your vibe as mean/annoying
+						◟♯ . / ! I will be mean to you if you're trolling me or if I see your vibe as mean/annoying
 
 													 ✦₊₎₎ꜝꜝ Shippers strict dni! especially kazuscara, go heal yourself
 
