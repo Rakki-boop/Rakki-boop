@@ -11,6 +11,8 @@
 
 						◟♯ . / ! I will be mean to you if you're trolling me or if I see your vibe as mean/annoying
 
+					 . .⨳◟ Cover discomfort!! please don't cover my ponies unless friend!
+
 													 ✦₊₎₎ꜝꜝ Shippers strict dni! especially kazuscara, go heal yourself
 
 														 ───────────────────────────────
