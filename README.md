@@ -7,13 +7,13 @@
 
 							 ִֶָ. ..𓂃 ࣪ ִֶָ་༘࿐  Mostly at hoyoverse area, usually by the rock or fence above
 
-		 ⤷ ゛ ˎˊ˗ Not really into making new friends, but I'm nice!! Cuddling with strangers is not my preference
+									 ⤷ ゛ ˎˊ˗ Not really into making new friends, but I'm nice!! 
 
-						◟♯ . / ! I will be mean to you if you're trolling me or if I see your vibe as mean/annoying
+								◟♯ . / ! Somtimes I'm snarky, no apologies for that 
 
 					 . .⨳◟ Cover discomfort!! please don't cover my ponies unless friend!
 
-									 ✦₊₎₎ꜝꜝ Shippers dni (unless already friends)! especially kazuscara, go heal yourself
+									 ✦₊₎₎ꜝꜝ Ships dni, especially kazuscara, go heal yourself
 
 														 ───────────────────────────────
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ❫･━━ ❜ 
