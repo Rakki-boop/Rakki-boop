@@ -9,7 +9,7 @@
 
 									 ⤷ ゛ ˎˊ˗ Not really into making new friends, but I'm nice!! 
 
-								◟♯ . / ! Somtimes I'm snarky, no apologies for that 
+								◟♯ . / ! Do not copy or take inspiration from my ponies
 
 					 . .⨳◟ Cover discomfort!! please don't cover my ponies unless friend!
 
