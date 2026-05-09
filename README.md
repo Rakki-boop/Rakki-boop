@@ -16,7 +16,7 @@
 									 ✦₊₎₎ꜝꜝ Ships dni, especially kazuscara, go heal yourself
 
 														 ───────────────────────────────
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ❫･━━ ❜ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ･ [Toyhouse](https://toyhou.se/Rakki)❫･━━ ❜ 
 							
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=green&label=maple+leaves+<3)
 	
