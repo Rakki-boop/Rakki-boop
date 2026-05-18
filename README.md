@@ -1,23 +1,18 @@
 						˚ ༘♡ ·˚꒰ Butterflies can't see their own wings, but everyone else admires their beauty. ꒱ ₊˚ˑ༄
+						
+![image_alt](https://64.media.tumblr.com/c42373b490acfd6e4de93423a75408c7/f03668631de77a31-9d/s2048x3072/20f16f6c6b6777c58257570f37dc8f63f549ab56.pnj)
+![image alt](https://i.pinimg.com/1200x/d5/33/2f/d5332fbdb49fdff42ba5274ba7176271.jpg)
 
-![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/8db97e43be403e2f2b4d83e12d64e52867e2d2ba/178508e08daa3774328748452c40fa84.jpg)
 
-															/ᐠ - ˕ -マ〝₎₎  Rakki  ✦₊ ˊ˗ 
-												           ───────────────────────────────
 
-							 ִֶָ. ..𓂃 ࣪ ִֶָ་༘࿐  Mostly at hoyoverse area, usually by the rock or fence above
-
-									 ⤷ ゛ ˎˊ˗ Not really into making new friends, but I'm nice!! 
-
-								◟♯ . / ! Do not copy or take inspiration from my ponies
-
-					 . .⨳◟ Cover discomfort!! please don't cover my ponies unless friend!
-
-									 ✦₊₎₎ꜝꜝ Ships dni, especially kazuscara, go heal yourself
-
-														 ───────────────────────────────
+<p align="center">
+  <img src="https://64.media.tumblr.com/728a5799a87806de298305a5987385c3/33dfd7eda65ea141-19/s75x75_c1/290ae9668b2da913ebcdedf49afde0203a33c22f.gifv" />
+									
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❛ ━━･❪[Instagram](https://www.instagram.com/rakki.art/?g=5) ･ [pronouns page](https://en.pronouns.page/@Rakki) ･ [atabook](https://rakki.atabook.org/?page=1) ･ [strawpage](https://rakkis.straw.page) ･ [Toyhouse](https://toyhou.se/Rakki)❫･━━ ❜ 
-							
+
+![image_alt](https://64.media.tumblr.com/e950cfd3650c71ceb10c35976332abd6/17e56c69ffb64f87-73/s2048x3072/6e01998b562d4b9aaffc551d2caf5870aeae3195.pnj)
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=green&label=maple+leaves+<3)
 	
 			 
