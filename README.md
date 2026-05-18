@@ -13,7 +13,7 @@
 ![image_alt](https://64.media.tumblr.com/e950cfd3650c71ceb10c35976332abd6/17e56c69ffb64f87-73/s2048x3072/6e01998b562d4b9aaffc551d2caf5870aeae3195.pnj)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=green&label=maple+leaves+<3)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Rakki-boop&color=green&label=maple+leaves+<3)
 	
 			 
    ![image alt](https://github.com/Rakki-boop/Rakki-boop/blob/b4a1f74dfd9657815a8f0c69189d15d1ab8707ef/Screenshot_20250820_202029_Instagram.jpg)
